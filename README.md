@@ -40,7 +40,7 @@ Also, I play a role as a Tech Project Manager at PMT Technologies apart from my 
 
 </p>
 
-LinkedIn - https://www.linkedin.com/in/onyishi/ <br/> 
+LinkedIn - https://www.linkedin.com/in/chetachivictor/ <br/> 
 GitHub - https://github.com/Onyishi </br>
 Portfolio - For portfolio connect with me.  <br/>
 <!--YouTube - https://youtube.com/channel/UCK1_Op30_pZ1zBs9l3HNyBw <br/>
